@@ -4,4 +4,3 @@ Amen!!!
 I Beleive in God
 In God we trust.
 only God...
-ok
